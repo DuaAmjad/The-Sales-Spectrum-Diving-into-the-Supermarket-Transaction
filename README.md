@@ -1,0 +1,1 @@
+# The-Sales-Spectrum-Diving-into-the-Supermarket-Transaction
